@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kakodu
 - 👀 I’m interested in smartphone and computer
 - 🌱 I’m currently learning Japenese
-- 💞️ I’m looking to collaborate on my girlfriend
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ...
 WeChat search my telephone number 
 <!---
